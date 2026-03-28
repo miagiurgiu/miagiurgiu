@@ -1,4 +1,4 @@
-## Hi there 👋!
+## Hi there, it's Mia!
 
-[UBB-Computer-Science-2025-2028]
+UBB-Computer-Science-2025-2028
 
